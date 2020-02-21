@@ -1,2 +1,0 @@
-# Perverso d20
-
